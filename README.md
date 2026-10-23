@@ -226,4 +226,4 @@ The Asian Dynasties is available as a complete free version, providing all featu
 Get started on your journey through the Far East with The Asian Dynasties! Download now and conquer new civilizations!
 
 ---
-**Last updated:** 2026-10-23 12:17:02 UTC
+**Last updated:** 2026-10-23 17:36:08 UTC
